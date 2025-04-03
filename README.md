@@ -11,6 +11,7 @@
 - Les dejo uno de sus mejores temas por si lo quieren escuchar:
 
 👉 [Zeballos - HACIENDO LO IMPOSIBLE](https://youtu.be/Jo5yB2JHLIs?si=RLfvAcutquYIv9QS)
+# 👉 ![image](https://github.com/user-attachments/assets/a4ad11b6-5fde-4d48-b659-7771ff0b2f22)
 
 ---
 **⚽ Pasiones**
